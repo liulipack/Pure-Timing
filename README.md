@@ -8,4 +8,4 @@ To the extent possible under law, [github.com/liulipack/Pure-Timing](https://cre
 
 贩售日(Date) | \[作品发行]作品名(\[production]Title) | 状态(Stat)
 | - | - | -
-20211119 | [WHITE BEAR]続・王女＆女騎士Wド下品露出 〜後編〜 恥辱の見世物奴隷 | 制作中
+20211119 | [WHITE BEAR]続・王女＆女騎士Wド下品露出 ～後編～ <span title="恥辱">○○</span>の見世物<span title="奴隷">○○</span> | 制作中
