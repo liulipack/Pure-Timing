@@ -11,5 +11,5 @@ To the extent possible under law, [github.com/liulipack/Pure-Timing](https://cre
 
 贩售日(Date) | \[作品发行]作品名(\[production]Title) | 状态(Stat)
 | - | - | -
-20211119 | \[nur]そしてわたしはセンセイに…… ～脇の下のアイツ……～ | 制作中(00:00/23:52)
 20211119 | \[WHITE BEAR]続・王女＆女騎士Wド下品露出 ～後編～ <span title="恥辱">○○</span>の見世物<span title="奴隷">○○</span> | [可获取](https://raw.githubusercontent.com/liulipack/Pure-Timing/main/2021/11/[WHITE%20BEAR]続・王女＆女騎士Wド下品露出%20～後編～%20○○の見世物○○.ass)([镜像](https://pure-timing.oss-cn-hangzhou.aliyuncs.com/2021/11/[WHITE%20BEAR]続・王女＆女騎士Wド下品露出%20～後編～%20○○の見世物○○.ass))
+20210924 | \[nur]そしてわたしはセンセイに…… ～でびゅ～ちゃん～ | 制作中(00:00/04:00 08:47/23:51)
