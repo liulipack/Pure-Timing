@@ -49,7 +49,7 @@ To the extent possible under law, [github.com/liulipack/Pure-Timing](https://cre
 20220527 | [[魔人 petit]<span title="援助">○○</span>交配 第六話 真面目な彼女は鬼の姫巫女](https://www.a1c.jp/~majin/product/kouhai_06.html) | 待制作
 20220527 | [[あんてきぬすっ]OVA異世界ヤリサー ＃2 百合カップルと人妻 男の良さ教えてやんよw](https://www.lune-soft.jp/ova/24510) | 待制作
 20220527 | [[あんてきぬすっ]OVA異世界ヤリサー ＃1 女戦士と新米女冒険者 異世界でもハメちゃうっしょw](https://www.lune-soft.jp/ova/24488) | 待制作
-20220527 | [[nur]小さな蕾のその奥に…… ～妖しく齧る爛れた蕾……～](http://nur.a1c.jp/nur_brand/product/tubomi/index_tubomi_04.html) | 制作中(00:00/03:42)
+20220527 | [[nur]小さな蕾のその奥に…… ～妖しく齧る爛れた蕾……～](http://nur.a1c.jp/nur_brand/product/tubomi/index_tubomi_04.html) | 制作中(00:40/03:42)
 20220527 | [[鈴木みら乃 petit]コンビニ<span title="少女">○○</span>Z　第三話 あなた、ヤンクレママですよね。旦那に万引きがバレていいんですか？](http://www.suzukimirano.com/product/convenie_z_03.html) | 待制作
 20220506 | [思春期のお勉強 第2話 学ぶより経験がしたいお年頃](https://mary-jane.biz/mysite1/shouhinlist.html) | [可获取](https://raw.githubusercontent.com/liulipack/Pure-Timing/main/2022/05/[メリー・ジェーン]思春期のお勉強%20第2話%20学ぶより経験がしたいお年頃.ass)
 20220428 | [[ショーテン]闇憑村/めるてぃーりみっと The Animation 下巻](http://showten.info/products/anime/stap016.html) | 待制作
