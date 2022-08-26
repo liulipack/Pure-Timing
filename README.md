@@ -51,7 +51,7 @@ To the extent possible under law, [github.com/liulipack/Pure-Timing](https://cre
 20220527 | [[あんてきぬすっ]OVA異世界ヤリサー ＃1 女戦士と新米女冒険者 異世界でもハメちゃうっしょw](https://www.lune-soft.jp/ova/24488) | 待制作
 20220527 | [[nur]小さな蕾のその奥に…… ～妖しく齧る爛れた蕾……～](http://nur.a1c.jp/nur_brand/product/tubomi/index_tubomi_04.html) | 制作中(00:40/03:42)
 20220527 | [[鈴木みら乃 petit]コンビニ<span title="少女">○○</span>Z　第三話 あなた、ヤンクレママですよね。旦那に万引きがバレていいんですか？](http://www.suzukimirano.com/product/convenie_z_03.html) | 待制作
-20220506 | [思春期のお勉強 第2話 学ぶより経験がしたいお年頃](https://mary-jane.biz/mysite1/shouhinlist.html) | [可获取](https://raw.githubusercontent.com/liulipack/Pure-Timing/main/2022/05/[メリー・ジェーン]思春期のお勉強%20第2話%20学ぶより経験がしたいお年頃.ass)
+20220506 | [[メリー・ジェーン]思春期のお勉強 第2話 学ぶより経験がしたいお年頃](https://mary-jane.biz/mysite1/shouhinlist.html) | [可获取](https://raw.githubusercontent.com/liulipack/Pure-Timing/main/2022/05/[メリー・ジェーン]思春期のお勉強%20第2話%20学ぶより経験がしたいお年頃.ass)
 20220428 | [[ショーテン]闇憑村/めるてぃーりみっと The Animation 下巻](http://showten.info/products/anime/stap016.html) | 待制作
 20220428 | [[nur]パパ喝ッ！ ～イキ場に漏れる背徳の小水～](http://nur.a1c.jp/nur_brand/product/papakatu/index_papakatu_02.html) | 待制作
 20220428 | [[妄想専科]コスプレチェンジ～ピュア系女子大生の危険な性癖～ 第三話 巨乳女子大生がコスプレ七変化!?蠱惑の吸血娘はSMでフタナリな変態プレイがお好き](https://www.a1c.jp/brandpage/mousousenka/product/cosplaychange_03.html) | 待制作
@@ -79,7 +79,7 @@ To the extent possible under law, [github.com/liulipack/Pure-Timing](https://cre
 20220225 | [[PashminaA]パシュミナフェチ SM・調教・お仕置き編 多人数プレイのおまけ付き](http://www.pashmina-jp.com/dvd/pashfechi/sm/main.html) | 待制作
 20220218 | [[Queen Bee]サキュバスアプリ ～学園<span title="催眠">○○</span>～ 第4話\[溝口ぜらちん\]](https://www.mediabank.co.jp/product.php?model=QNB-M101) | 待制作
 20220211 | [[GOLD BEAR]聖<span title="奴隷">○○</span>学園2 ～前編～ 剥奪された権力](https://www.mediabank.co.jp/product.php?model=GBR-025) | 待制作
-20220204 | [[Queen Bee]ひみつのきち 1 暁（あかつき）\[キチロク\]](https://www.mediabank.co.jp/product.php?model=QNB-M100) | 待制作
+20220204 | [[Queen Bee]ひみつのきち 1 暁（あかつき）[キチロク]](https://www.mediabank.co.jp/product.php?model=QNB-M100) | 待制作
 20220204 | [[あんてきぬすっ]OVA 茜ハ摘マレ染メラレル ＃2](https://www.lune-soft.jp/ova/24069) | 待制作
 20220204 | [[あんてきぬすっ]OVA 茜ハ摘マレ染メラレル ＃1](https://www.lune-soft.jp/ova/24035) | 待制作
 20220128 | [[PashminaA]パシュミナフェチ 禁断の姉食い妹食い編](http://www.pashmina-jp.com/dvd/pashfechi/kindan/main.html) | 待制作
@@ -105,7 +105,7 @@ To the extent possible under law, [github.com/liulipack/Pure-Timing](https://cre
 20211126 | [[ピンクパイナップル]ママホリック ～魅惑のママと甘々カンケイ～ THE ANIMATION 下巻](https://www.pinkpineapple.co.jp/detail.php?did=2301) | 待制作
 20211126 | [[ピンクパイナップル]ママホリック ～魅惑のママと甘々カンケイ～ THE ANIMATION 上巻](https://www.pinkpineapple.co.jp/detail.php?did=2299) | 待制作
 20211126 | [[妄想専科]身体で解決 百鬼屋探偵事務所 ～百鬼屋 光の妖怪事件簿～ 第四話 妖怪大戦争復讐劇](https://www.a1c.jp/brandpage/mousousenka/product/hyakkiya04.html) | 待制作
-20211126 | [コスプレチェンジ～ピュア系女子大生の危険な性癖～ 第一話 巨乳女子大生がコスプレ七変化!?魅惑の妖怪探偵にムチエロチェンジ](http://www.a1c.jp/brandpage/mousousenka/product/cosplaychange_01.html) | 待制作
+20211126 | [[妄想専科]コスプレチェンジ～ピュア系女子大生の危険な性癖～ 第一話 巨乳女子大生がコスプレ七変化!?魅惑の妖怪探偵にムチエロチェンジ](http://www.a1c.jp/brandpage/mousousenka/product/cosplaychange_01.html) | 待制作
 20211126 | [[nur]そしてわたしはセンセイに…… ～脇の下のアイツ……～](http://nur.a1c.jp/nur_brand/product/soshisen/index_soshisen_02.html) | 待制作
 20211119 | [[ZIZ]対魔忍不知火～淫欲の<span title="奴隷">○○</span>娼婦～](https://www.ziz-entertainment.com/zizd019/index.html) | 待制作
 20211119 | [[WHITE BEAR]続・王女＆女騎士Wド下品露出 ～後編～ <span title="恥辱">○○</span>の見世物<span title="奴隷">○○</span>](https://www.mediabank.co.jp/product.php?model=WBR-110) | [可获取](https://raw.githubusercontent.com/liulipack/Pure-Timing/main/2021/11/[WHITE%20BEAR]続・王女＆女騎士Wド下品露出%20～後編～%20○○の見世物○○.ass)
