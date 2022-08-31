@@ -18,13 +18,13 @@ To the extent possible under law, [github.com/liulipack/Pure-Timing](https://cre
 20220930 | [[魔人 petit]錬精術士コレットのHな搾精物語 第一話 コレットのアトリエ開業！ 爆乳勇者シルヴィアとの出会い](https://www.a1c.jp/~majin/product/collet_01.html) | 待制作
 20220930 | [[妄想専科]ＳＵＭＭＥＲ 〜田舎の性活〜　第二話　夏休みの課題とワンピース](https://www.a1c.jp/brandpage/mousousenka/product/summer_02.html) | 待制作
 20220909 | [[King Bee]J<span title="K">〇</span>限界交尾 ～合意挿入でバチバチ肉穴化～ 第2話 チチのチ晴れ](https://www.mediabank.co.jp/product.php?model=KNB-M005) | 待制作
-20220902 | [[ばにぃうぉ～か～]OVA 委員長は<span title="催眠">○○</span>アプリを信じてる。](https://www.lune-soft.jp/ova/24829) | 待制作
 | - | 上方作品暂未贩售，有可能跳票 | -
+20220902 | [[ばにぃうぉ～か～]OVA 委員長は<span title="催眠">○○</span>アプリを信じてる。](https://www.lune-soft.jp/ova/24829) | 待制作
 20220826 | [[ショーテン]処女はお姉さまに恋してる 三つのきら星 The Animation 下巻](https://showten.info/products/anime/stap018.html) | 待制作
 20220826 | [[ピンクパイナップル]搾精病棟 THE ANIMATION 第3巻 ～ヤマグチ編～](https://www.pinkpineapple.co.jp/detail.php?did=2342) | [可获取](https://raw.githubusercontent.com/liulipack/Pure-Timing/main/2022/08/[ピンクパイナップル]搾精病棟%20THE%20ANIMATION%20第3巻%20～ヤマグチ編～.ass)
 20220826 | [[PoRO petit]ツグナヒ ナマイキスポ処女・ナツキ～稚拙な屈辱～](http://www.poro.cc/product/tsugunai_02/petit_tsugunai_02_point.html) | 待制作
 20220826 | [[PoRO petit]エロ医師 ナマイキドエロ・怜奈＆綾乃～絡み貪る牝少女～](http://www.poro.cc/product/erodoctor_04/petit_erodoctor_04_point.html) | 待制作
-20220826 | [[ピンクパイナップル]鬼作 令和版](https://www.pinkpineapple.co.jp/detail.php?did=2333) | 待制作
+20220826 | [[ピンクパイナップル]鬼作 令和版](https://www.pinkpineapple.co.jp/detail.php?did=2333) | [可获取](https://raw.githubusercontent.com/liulipack/Pure-Timing/main/2022/08/[ピンクパイナップル]鬼作%20令和版.ass)
 20220826 | [[Collaboration Works petit]きつね娘のエッチなお宿 第一話 恩返しで新米女将!?お宿を守るエッチなサービス](https://www.a1c.jp/~collabo/product/kitunemusume_01.html) | [可获取](https://raw.githubusercontent.com/liulipack/Pure-Timing/main/2022/08/[Collaboration%20Works%20petit]きつね娘のエッチなお宿%20第一話%20恩返しで新米女将!お宿を守るエッチなサービス.ass)
 20220805 | [[メリー・ジェーン]僕は小さな淫魔のしもべ 第1話 家畜生活の始まり](https://mary-jane.biz/mysite1/shouhinlist.html) | 待制作
 20220805 | [[ばにぃうぉ～か～]OVA 聖華女学院公認竿おじさん ＃4 金髪爆乳生徒会長ルイーザ・リヒター](https://www.lune-soft.jp/ova/24751) | 待制作
